@@ -6,4 +6,5 @@
   3. NITISH MAHAJAN (COMMUNITY MANAGER)
   4. SAHITYA ROY (Event Manager)
   5. Karan Dhingra (Marketing Manager)
+  6. Shriya Saxena (Event Evangelist)
 
