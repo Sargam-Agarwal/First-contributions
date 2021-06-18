@@ -7,4 +7,5 @@
   4. SAHITYA ROY (Event Manager)
   5. Karan Dhingra (Marketing Manager)
   6. Shriya Saxena (Event Evangelist)
+  7. SARGAM AGARWAL (Public Relations Manager)
 
